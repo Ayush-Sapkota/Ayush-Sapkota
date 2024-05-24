@@ -28,6 +28,4 @@ I'm always eager to engage in new learning opportunities and collaborative proje
 
 I'm looking forward to connecting and collaborating with you!
 
----
 
-Feel free to tweak this message further to better reflect your personality and goals.
